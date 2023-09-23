@@ -1,2 +1,2 @@
-# Mi primer README (freeCodeCamp)
-Repositorio para practicar
+# Jack El destripador
+Asesino serial
