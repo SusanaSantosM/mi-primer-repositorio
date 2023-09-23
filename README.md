@@ -10,3 +10,5 @@ _Desmembraba a sus victimas_
 
 Sus victimas en la maryoria eran mujeres ~~prostitutas~~ que las <sub>desmebraba</sub>
 
+>Nunca encontraron al responsable de tantas muertes
+
