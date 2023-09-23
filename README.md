@@ -1,2 +1,3 @@
 # Jack El destripador
-Asesino serial
+## Asesino serial
+__Jack asesinaba a las mujeres en el siglo pasado__
